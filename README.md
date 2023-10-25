@@ -9,3 +9,7 @@
 6. Iddriss Hamidu Mustapha
 7. Essiedu Daniel
 8. Mark Sivan Tamakloe
+9. Awuku Samuel Akoto
+10. Isaac Nana Kwabena Nyame Ofori
+11. Ayomah Richard Arthur
+12. Tijani Hassan Cissey
